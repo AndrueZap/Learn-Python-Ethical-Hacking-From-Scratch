@@ -1,6 +1,0 @@
-# Learn-Python-Ethical-Hacking-From-Scratch
-Mine første skritt til å bli en...
-
-Her Begynner reisen...
-
-å her fotsetter den..med dette spennende avsnittet om luft..
