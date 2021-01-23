@@ -1,3 +1,0 @@
-
-
-# da var vi der
